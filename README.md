@@ -223,4 +223,4 @@ Trojan Killer is offered as a full free version with all features unlocked and u
 Don't wait any longer! Download **Trojan Killer** today and protect your PC against malware threats with confidence!
 
 ---
-**Last updated:** 2026-10-14 23:38:29 UTC
+**Last updated:** 2026-10-15 03:01:50 UTC
